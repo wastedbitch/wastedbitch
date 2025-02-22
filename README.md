@@ -6,7 +6,7 @@ ocean is a fuck!!!
 
 ![fishe](https://github.com/wastedbitch/fishy/blob/main/fish.gif)
 
-[All Cods Are Bastards](https://fishcore.art)
+[fishcore.art](https://fishcore.art)
 <!---
 wastedbitch/wastedbitch is a ✨ special ✨ repository
 --->
